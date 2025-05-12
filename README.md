@@ -1,1 +1,1 @@
-# findataiq.iq
+# findataiq.global
